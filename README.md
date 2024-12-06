@@ -1,0 +1,2 @@
+# seseorang
+untuk seseorang
